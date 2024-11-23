@@ -1,6 +1,6 @@
 # Privacy Policy for XiaoKen APP
 
-**Effective Date: November 23, 2024**
+**Effective Date: November 11, 2024**
 
 Your privacy is important to us. This Privacy Policy explains how we handle your personal information when you use XiaoKen.
 
